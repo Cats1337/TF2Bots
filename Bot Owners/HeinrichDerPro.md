@@ -23,7 +23,45 @@ We can see that his profile pictures were the same, his original name "Nยก~~
 ![b](https://user-images.githubusercontent.com/42129397/127070968-2257db91-9d79-4210-904f-57d06cb8309d.png)
 
 Thought it is difficult to see, you can see that the profile picture, or pfp, used to be the same as the "N~~Redacted~~Killer bots.
+
 ![d](https://user-images.githubusercontent.com/42129397/127071023-7bd155f5-33a4-4ea2-9c9d-cb3efc7794cf.png)
 
 
 Though I wasn't able to find the profile link to this specific account, someone named Miata provided me with the image above, as well as some other information.
+
+[quote=Miata] There were many of these
+	The site is hosted by a server in **Germany***¹*
+	That checks as well
+	His whole profile is filled with false information
+	Another check
+ [/quote]
+	[b]Who would link their main account to bots that everyone is getting pissed at?[/b]
+[quote=Miata]
+	Because he loves the attention
+	The website is used for donations
+	So he can continue running the server with the bots
+	Also he has a lot of famous **cheaters** on his **friends list** *²*
+	That's just another giveaway that he's the one responsible
+ [/quote]
+###### **Point 1:** 
+[list]
+* The main site was hosted in Germany. *
+* HeinrichDerPro is German.
+* Bots were/are racist
+* HeinrichDerPro has racist past, and present.
+
+* *Though I don't know their host website is, I do believe Miata, unless evidence proves otherwise.*
+
+He legit has a [How to Cheat Guide...] (https://steamcommunity.com/sharedfiles/filedetails/?id=2394545944) though it seems satirical, you can't help but think it's all too perfect.
+
+![e](https://user-images.githubusercontent.com/42129397/127072234-25d6661c-f47d-43be-9bbb-cd8e360c537d.png)
+
+
+###### **Point 2:**
+* Friends with botter(s).
+  * Though I don't know all the 'famous' cheaters, I ask that you link me their profiles and I'll update the guide according to information found.
+[Botter Friend's Profile](https://steamcommunity.com/id/therealn3u)
+
+[previewimg=22673887;sizeFull,inline;BotterFriend2.png][/previewimg]
+
+*Thanks to an anonymous user for pointing this out to me.*
