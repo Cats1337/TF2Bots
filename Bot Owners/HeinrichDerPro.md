@@ -29,8 +29,7 @@ Thought it is difficult to see, you can see that the profile picture, or pfp, us
 
 Though I wasn't able to find the profile link to this specific account, someone named Miata provided me with the image above, as well as some other information.
 
-````
-"There were many of these. 
+There were many of these. 
 The site is hosted by a server in **Germany***¹*. 
 That checks as well. 
 His whole profile is filled with false information. 
@@ -39,8 +38,8 @@ Because he loves the attention.
 The website is used for donations. 
 So he can continue running the server with the bots. 
 Also he has a lot of famous **cheaters** on his **friends list** *²*. 
-That's just another giveaway that he's the one responsible."
-```` ~ Miata
+That's just another giveaway that he's the one responsible.
+ ~ Miata
 
 ###### **Point 1:** 
 * The main site was hosted in Germany. *
