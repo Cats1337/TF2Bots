@@ -49,7 +49,7 @@ That's just another giveaway that he's the one responsible.
 
 * *Though I don't know their host website is, I do believe Miata, unless evidence proves otherwise.*
 
-He legit has a [How to Cheat Guide...] (https://steamcommunity.com/sharedfiles/filedetails/?id=2394545944) though it seems satirical, you can't help but think it's all too perfect.
+He legit has a [How to Cheat Guide...](https://steamcommunity.com/sharedfiles/filedetails/?id=2394545944) though it seems satirical, you can't help but think it's all too perfect.
 
 ![e](https://user-images.githubusercontent.com/42129397/127072234-25d6661c-f47d-43be-9bbb-cd8e360c537d.png)
 
