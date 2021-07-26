@@ -3,7 +3,7 @@ Bots will spam many different things in chat, one of them being a link to a stea
 
 They have also changed their name since I started writing this informative guide out. For continuity sake I will be referring to him as "HeinrichDerPro"
 
-###### In the case they change their url, or name again, here is their info
+#### In the case they change their url, or name again, here is their info
 Steam ID | STEAM_0:1:209596517
 ------------ | -------------
 Steam3 | [U:1:419193035]
@@ -19,10 +19,11 @@ Inputting his steamid / url
 
 We can see that his profile pictures were the same, his original name "Nยก~~Redacted~~killer" using an inverted exclamation mark to bypass the filter, and then using various zalgo characters.
 
-[previewimg=22674034;sizeFull,inline;pfpchange.png][/previewimg]
-[previewimg=22674029;sizeFull,inline;morepfpproof.png][/previewimg]
+![a](https://user-images.githubusercontent.com/42129397/127070961-427e4ddc-4af7-4fe0-a2ea-aa39a2e06dd9.png)
+![b](https://user-images.githubusercontent.com/42129397/127070968-2257db91-9d79-4210-904f-57d06cb8309d.png)
 
 Thought it is difficult to see, you can see that the profile picture, or pfp, used to be the same as the "N~~Redacted~~Killer bots.
-[previewimg=22673880;sizeFull,inline;aaaaa.png][/previewimg]
+![d](https://user-images.githubusercontent.com/42129397/127071023-7bd155f5-33a4-4ea2-9c9d-cb3efc7794cf.png)
+
 
 Though I wasn't able to find the profile link to this specific account, someone named Miata provided me with the image above, as well as some other information.
