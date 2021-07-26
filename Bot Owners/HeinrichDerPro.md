@@ -44,7 +44,6 @@ Though I wasn't able to find the profile link to this specific account, someone 
 	That's just another giveaway that he's the one responsible
  [/quote]
 ###### **Point 1:** 
-[list]
 * The main site was hosted in Germany. *
 * HeinrichDerPro is German.
 * Bots were/are racist
@@ -62,6 +61,6 @@ He legit has a [How to Cheat Guide...] (https://steamcommunity.com/sharedfiles/f
   * Though I don't know all the 'famous' cheaters, I ask that you link me their profiles and I'll update the guide according to information found.
 [Botter Friend's Profile](https://steamcommunity.com/id/therealn3u)
 
-[previewimg=22673887;sizeFull,inline;BotterFriend2.png][/previewimg]
+![f](https://user-images.githubusercontent.com/42129397/127072645-3637c0b3-d589-4a42-85fa-94941f4f4b0a.png)
 
 *Thanks to an anonymous user for pointing this out to me.*
