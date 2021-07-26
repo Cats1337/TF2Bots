@@ -3,7 +3,7 @@ Bots will spam many different things in chat, one of them being a link to a stea
 
 They have also changed their name since I started writing this informative guide out. For continuity sake I will be referring to him as "HeinrichDerPro"
 
-######In the case they change their url, or name again, here is their info
+###### In the case they change their url, or name again, here is their info
 Steam ID | STEAM_0:1:209596517
 ------------ | -------------
 Steam3 | [U:1:419193035]
