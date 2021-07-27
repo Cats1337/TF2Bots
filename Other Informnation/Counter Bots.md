@@ -11,3 +11,11 @@ Now how else can you do with these bots you ask? Well, you can kick them, and he
 
 
 The other way to kick is by press escape, and click call vote, clicking the bot, and calling the vote. But this takes too long and the bot will probably kick you before you can kick it. As well as the other issue of the menu not updating until they are in-game, and have already called a vote on you...
+
+## Bot Detection
+
+If GitHub Coder PazerOP can create a program that detects the bots, and targets them / tells others about them, then why can't Valve do the same?
+
+https://github.com/PazerOP/tf2_bot_detector
+
+It's all open source too, so feel free to check it out!
