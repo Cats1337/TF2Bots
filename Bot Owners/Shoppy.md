@@ -1,4 +1,4 @@
-Now this is another bot, but it's still one we can look at to see how they're getting support. So I chucked on a vpn, and checked out the link bots spam. Which brings you to ~~Redacted~~ They use the word 'boat' in place of 'bot' I'm guessing to prevent shoppy from being suspicious? 
+Now this is another bot, that we can look at to see how they're getting support. So I chucked on a vpn, and checked out the link bots spam. Which brings you to ~~Redacted~~ They use the word 'boat' in place of 'bot' I'm guessing to prevent shoppy from being suspicious? 
 They have two different things listed on their shoppy.
 
 ![n](https://user-images.githubusercontent.com/42129397/127075540-862ca306-2a69-4168-82ce-aaf8d4b9b2b0.png)
