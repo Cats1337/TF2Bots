@@ -19,7 +19,6 @@ Thank you for taking the time to read this, and helping.
 
 ## PLANNED UPDATE(S):
 * Xarq0n
-* ¯\\_(ツ)_/¯ 
 
 
 Clearly doing something right if this got reported enough to be taken down.
