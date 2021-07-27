@@ -1,4 +1,4 @@
-#### In the case they change their url, or name again, here is their info[/u]
+#### In the case they change their url, or name again, here is their info
 Steam ID | STEAM_0:1:559697109
 ----- | -----
 Steam3 | [U:1:1119394219]
