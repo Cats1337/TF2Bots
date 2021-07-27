@@ -1,4 +1,4 @@
-Since they are bots and using cheats, there is no way you can out-skill them. Or is there?
+Since they are bots and using cheats, there is no way you can out-skill them right. Or is there?
 [Video is age restricted](https://www.youtube.com/watch?v=LyH0ylaXHhw) *(Due to use of N-word in title, and bots name)*
 In the video above by avid, he says he was looking up in order to block his head hitbox, and he when he gets shot he doesn't die, due to the bullet hitting his arms and not his head, and then he kills the bot. 
 Now how else can you do with these bots you ask? Well, you can kick them, and here's how.
