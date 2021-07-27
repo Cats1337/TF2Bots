@@ -11,7 +11,7 @@ Again using https://steamid.uk we can check a user's avatar history, name histor
 Inputting his steamid / url 
 
 
-d3fc0n6 bots are now called "braaap" bots, which "is a disgrace to the braaap" - LOLYOU
+d3fc0n6 bots are now called "braaap" bots, which "is a disgrace to the braaap" - [LOLYOU](https://www.youtube.com/watch?v=gCEHT94EZXs&list=PLP7pk4r35_uYXCxkHNakRH3Q6g2laW09Q&index=3)
 
 ![4](https://user-images.githubusercontent.com/42129397/127077920-6ecee8ec-7c3a-4863-9f3e-0ce98f828344.png)
 
