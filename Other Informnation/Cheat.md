@@ -86,4 +86,4 @@ https://milenko.ml/livestats.html @ 7-8 PM GMT -5 on 20 July 2021
 * Yellow is it's own stat, being the percent of bots to humans, which is typically 3.5% ~ 4.0%
 
 
-For about every 28 players, there's one bot.
+For about every 28 players, there's one bot...
