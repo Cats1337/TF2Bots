@@ -63,6 +63,8 @@ He legit has a [How to Cheat Guide...](https://steamcommunity.com/sharedfiles/fi
 
 *Thanks to an anonymous user for pointing this out to me.*
 
+###
+
 ***Much of this had to be blurred in the re-uploaded version.***
 
 Going back to names, we can clearly see this person is both racist and homophobic as their name was variations of a racial slur killer. So this doesn't need to be a coincidence.
@@ -73,9 +75,16 @@ Then his defense is hidden in the 'View more info' tab, and it reads "DISCLAIMER
 Which aside form the various typo's " IAM'MNOT' & 'BEOPLE' it is the weakest defense you could ever put, there is no justification for these actions.
 
 ![g](https://user-images.githubusercontent.com/42129397/127073722-c828cb55-20c4-4a0d-97df-2107bc4105b5.png)
+https://steamcommunity.com/sharedfiles/filedetails/?id=1812584741
 ![h](https://user-images.githubusercontent.com/42129397/127073724-4ca99c30-be45-4dac-9cd1-2fafa18c11e9.png)
+https://steamcommunity.com/sharedfiles/filedetails/?id=1848458338
 ![i](https://user-images.githubusercontent.com/42129397/127073726-e3df5967-83c6-4a37-a7e4-cec735c490f6.png)
+https://steamcommunity.com/sharedfiles/filedetails/?id=1848458338
 ![j](https://user-images.githubusercontent.com/42129397/127073727-8fa830ac-58e7-42d6-acc0-ddbdf5edfd33.png)
+https://steamcommunity.com/sharedfiles/filedetails/?id=1812584741
 ![k](https://user-images.githubusercontent.com/42129397/127073729-7078c64c-3185-4f32-b7b6-91621b4e41de.png)
+https://steamcommunity.com/sharedfiles/filedetails/?id=1812584741
 ![l](https://user-images.githubusercontent.com/42129397/127073730-43989178-64d7-468d-9ed7-0befbf8ff634.png)
+https://steamcommunity.com/sharedfiles/filedetails/?id=1812584741
 ![m](https://user-images.githubusercontent.com/42129397/127073731-901d1517-294c-4c06-b129-9b1995273edf.png)
+https://steamcommunity.com/sharedfiles/filedetails/?id=2018208608
