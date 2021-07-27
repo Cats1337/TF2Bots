@@ -13,7 +13,7 @@ Url history | https://steamid.uk/url/heinrichderpro
 SteamID URL | https://steamid.uk/profile/76561198379458763
 Community URL | https://steamcommunity.com/profiles/76561198379458763
 
-Using https://steamid.uk/]steamid.uk we can check a user's avatar history, name history, and other information.
+Using https://steamid.uk we can check a user's avatar history, name history, and other information.
 Inputting his steamid / url 
 [Profile Url](https://steamid.uk/profile/76561198379458763)
 
