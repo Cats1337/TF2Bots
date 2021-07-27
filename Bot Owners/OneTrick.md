@@ -71,7 +71,7 @@ Thought this is *not* legal advice, you could easily have a solid case against t
 * 1US) Sexual Abuse Offense (Pedophilia) - Maybe 5 years, may vary.
 * 2US) Obstruction of Justice (Deleting Evidence) - up to 12 years.
 
-Though OneTrick apparently resides in Canada, from what I've been told, they charges would be the same but different time.
+Though OneTrick apparently resides in Canada, from what I've been told, the charges would be the same but different time.
 
 * 1CA) Sexual Abuse Offense (Pedophilia) - Up to 14 years in prison 
 * 2CA) Obstruction of Justice (Deleting Evidence) - Up to 10 years, not sure exactly.
