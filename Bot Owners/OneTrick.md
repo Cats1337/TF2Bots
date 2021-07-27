@@ -41,3 +41,42 @@ They were also kind enough to link me OneTrick's main profile so I can do some m
 ![v](https://user-images.githubusercontent.com/42129397/127076575-57bf41e9-8431-407f-9093-9e177f23092f.png)
 
 *Their profile is now private, and these screenshots are no longer viewable, might be deleted too.*
+
+![opera_8bWWryQ9FS-1](https://user-images.githubusercontent.com/42129397/127076738-ab9afa33-9504-41fe-b6d6-eec7a972f0fd.png)
+
+They got community banned :D
+
+When I was doing more work on this guide, the sections above. I was getting the screenshots for proof of OneTrick/Dreamy cheating, same person different name. I msg'd TheCatsMeow412 again about the fact that the rest of their screenshots were just pony lewds... 
+The following information is about how OneTrick / Dreamy / Timeless is also a pedophile on top of his cheating / botting.
+
+#### Evidence:
+First this picture, censored for Victim's privacy:
+
+![w](https://user-images.githubusercontent.com/42129397/127077069-419cdff3-26ff-43ee-9033-8c272adc1f90.png)
+
+OneTrick, Dreamy, is talking with someone who wants them to stop botting, and well you can read. The Victim is a minor, shown in video to be 14, and was manipulated into doing a lewd act. Which they never did, thankfully.
+
+![x](https://user-images.githubusercontent.com/42129397/127077083-3a505051-6508-4e4d-8fc7-9157b9f4bb6b.png)
+![y](https://user-images.githubusercontent.com/42129397/127077084-ce841def-7205-4a0a-bc8f-706ab087338e.png)
+![z](https://user-images.githubusercontent.com/42129397/127077087-afdc0992-7074-4d58-8927-30197e649983.png)
+![1](https://user-images.githubusercontent.com/42129397/127077096-b91f9a2f-d93c-42ac-b747-fb307ed383f2.png)
+![2](https://user-images.githubusercontent.com/42129397/127077097-40235e37-bcb7-49fa-8ea8-195c8edbb51b.png)
+![3](https://user-images.githubusercontent.com/42129397/127077098-b230d983-6454-4c5d-9540-12f8e1a3e3ae.png)
+
+___1*___
+Thought DM's are considered to be 'private' unless both participants / parties, agree to keeping them private there is no LEGAL, obligation that they can be held to in the case they disclose / leak their DMs.
+
+Thought this is *not* legal advice, you could easily have a solid case against them. With at least two points
+
+* 1US) Sexual Abuse Offense (Pedophilia) - Maybe 5 years, may vary.
+* 2US) Obstruction of Justice (Deleting Evidence) - up to 12 years.
+
+Though OneTrick apparently resides in Canada, from what I've been told, they charges would be the same but different time.
+
+* 1CA) Sexual Abuse Offense (Pedophilia) - Up to 14 years in prison 
+* 2CA) Obstruction of Justice (Deleting Evidence) - Up to 10 years, not sure exactly.
+
+I mentioned 'Timeless' above, that is one of the Aliases that OneTrick went by, according to my source, and he did even more questionable and perverted things under that name.
+
+### PSA:
+If you are / were sexually assaulted or harassed, please seek proper help from a Trusted adult be it Parent, Teach, Guardian, etc. or call 800-656-HOPE or goto https://www.rainn.org/ to have a live chat with someone who can help you.
