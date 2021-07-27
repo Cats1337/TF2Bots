@@ -1,4 +1,4 @@
-The Update / Patch Notes can be found here: https://www.teamfortress.com/?tab=updates
+### The Update / Patch Notes can be found here: https://www.teamfortress.com/?tab=updates
 
 
 * Numerous security and stability improvements
