@@ -19,7 +19,7 @@ Thank you for taking the time to read this, and helping.
 
 ## PLANNED UPDATE(S):
 * Xarq0n
-
+* ?
 
 Clearly doing something right if this got reported enough to be taken down.
 As well as some of the bot hosters and cheaters commenting on this guide as well as my profile. Just makes me that much more confident in my findings.
