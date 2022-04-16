@@ -7,7 +7,7 @@ If there are any other additions they will be listed below.
 Thank you for taking the time to read this, and helping.
 
 Bot Detector:
->> https://github.com/PazerOP/tf2_bot_detector <<
+https://github.com/PazerOP/tf2_bot_detector
 
 ## UPDATE(S):
 * Guide was removed for violating guidelines?... Now it's back :)
