@@ -3,6 +3,7 @@ Steam ID | STEAM_0:0:206061740
 ----- | -----
 Steam3 | [U:1:412123480]
 Community ID | 76561198372389208
+Custom URL | ambiguityseven
 Url history | https://steamid.uk/url/nfud
 SteamID URL | https://steamid.uk/profile/76561198372389208
 Community URL | https://steamcommunity.com/profiles/76561198372389208[/quote]
@@ -34,3 +35,6 @@ The two boxed profile pictures are the ones used by the bots, and the one of the
 The other thing that made me realize I had the right account is this comment left by NK, aka HeinrichDerPro.
 
 ![8](https://user-images.githubusercontent.com/42129397/127077963-45867b59-df44-404b-9ab2-b5ea8e45a403.png)
+
+
+It seems as though these bots are pretty much gone, I've only seen a few that were heavy bots.

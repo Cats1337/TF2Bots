@@ -12,3 +12,5 @@ SteamID URL | https://steamid.uk/profile/76561198799031853
 Community URL | https://steamcommunity.com/profiles/76561198799031853
 
 No pretty pics for this one, sorry...
+
+These bots now also now blare loud music over voicechat.

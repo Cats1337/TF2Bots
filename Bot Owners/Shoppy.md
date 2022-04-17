@@ -33,3 +33,5 @@ REMEMBER! You are not ignored by all bots! You are only ignored to Boat Rolling 
 
 #### Not only is it a scam, it probably doesn't even work, but I'm not giving them anything to test it, and neither should you... I'm not sure how to report shoppy users, but I don't doubt some of you will go ahead and do it and get their account terminated.
 
+<br>
+It seems as though these bots are pretty much gone, I haven't seen any recently though.

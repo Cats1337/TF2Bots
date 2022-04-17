@@ -78,5 +78,7 @@ Though OneTrick apparently resides in Canada, from what I've been told, the char
 
 I mentioned 'Timeless' above, that is one of the Aliases that OneTrick went by, according to my source, and he did even more questionable and perverted things under that name.
 
+It seems as though these bots are pretty much gone, I haven't seen any recently.
+
 ### PSA:
-If you are / were sexually assaulted or harassed, please seek proper help from a Trusted adult be it Parent, Teach, Guardian, etc. or call 800-656-HOPE or goto https://www.rainn.org/ to have a live chat with someone who can help you.
+>If you are / were sexually assaulted or harassed, please seek proper help from a Trusted adult be it Parent, Teach, Guardian, etc. or call 800-656-HOPE or goto https://www.rainn.org/ to have a live chat with someone who can help you.
