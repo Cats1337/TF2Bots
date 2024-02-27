@@ -6,7 +6,7 @@ Community ID | 76561198372389208
 Custom URL | ambiguityseven
 Url history | https://steamid.uk/url/nfud
 SteamID URL | https://steamid.uk/profile/76561198372389208
-Community URL | https://steamcommunity.com/profiles/76561198372389208[/quote]
+Community URL | https://steamcommunity.com/profiles/76561198372389208
 
 Again using https://steamid.uk we can check a user's avatar history, name history, and other information.
 Inputting his steamid / url 
