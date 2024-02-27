@@ -4,7 +4,7 @@ Steam ID | STEAM_0:1:595249707
 Steam3 | [U:1:1190499415]
 Community ID | 76561199150765143
 SteamID URL | https://steamid.uk/profile/76561199150765143
-Community URL | https://steamcommunity.com/profiles/76561199150765143[/quote]
+Community URL | https://steamcommunity.com/profiles/76561199150765143
 
 Again using https://steamid.uk can check a user's avatar history, name history, and other information.
 Inputting his steamid / url 
